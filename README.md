@@ -1,2 +1,2 @@
-# kae-ne
-di si trasu buras moi
+kae ne
+di si sutra
