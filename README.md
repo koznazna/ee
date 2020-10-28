@@ -1,2 +1,3 @@
 # kae-ne
-kuiš buras
+Di si sutra?
+di si trasu buras moi
